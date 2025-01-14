@@ -1,5 +1,5 @@
 ![Uploading Screenshot_20250103-002349.png…]()
-![Screenshot_20250103-002407](https://github.com/user-attachments/assets/55c7ded7-1f26-436b-99de-d8f24c983d6f)
+![Screenshot_20250103-002407](https://github.com/ #2e5b4c1-attachments/assets/55c7ded7-1f26-436b-99de-d8f24c983d6f)
 - 👋 Hi, I’m @bigusd61
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
